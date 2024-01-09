@@ -8,7 +8,7 @@
 #### 8
 #### 9 Github is really awesome!
 #### 10
-#### 11 IDE is good!
+#### 11 IDE is so peppermint!
 #### 12
 #### 13
 #### 14
